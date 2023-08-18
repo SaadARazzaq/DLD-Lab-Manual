@@ -2,4 +2,4 @@
 
 Solved Lab Manual of all DLD Labs 💡
 
-Thank Me Later 😏
+THANKS ==> ![SUBSCRIBE](https://www.youtube.com/channel/UCD7sQyEbW50jfkiEzlqTL-Q) 🔥
