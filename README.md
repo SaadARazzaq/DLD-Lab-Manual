@@ -6,6 +6,9 @@ Solved Lab Manual of all DLD Labs 💡
 
 ## Followed the same lab manual and got below results 😎🔥
 
+![image](https://github.com/SaadARazzaq/EL1005_DLD-Lab-Manual/assets/123338307/70e2d360-dffa-49b7-87f9-57deccdc757e)
+
+![image](https://github.com/SaadARazzaq/EL1005_DLD-Lab-Manual/assets/123338307/3ab5f9f6-b648-4c0c-a0c9-d364b84b46e3)
 
 
 
